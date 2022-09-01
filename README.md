@@ -7,4 +7,6 @@ https://www.linkedin.com/in/vichu48
 
 https://vichu.hashnode.dev
 
+https://dev.to/vichu48
+
 Todo: Make this beautiful
