@@ -9,4 +9,6 @@ https://vichu.hashnode.dev
 
 https://dev.to/vichu48
 
+https://vichu48.itch.io
+
 Todo: Make this beautiful
