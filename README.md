@@ -7,8 +7,12 @@ https://www.linkedin.com/in/vichu48
 
 https://vichu.hashnode.dev
 
+https://vichu48.itch.io
+
+ttps://vichu.tumblr.com
+
 https://dev.to/vichu48
 
-https://vichu48.itch.io
+
 
 Todo: Make this beautiful
