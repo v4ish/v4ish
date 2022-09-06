@@ -13,6 +13,6 @@ https://vichu.tumblr.com
 
 https://dev.to/vichu48
 
-
+ko-fi.com/vaisakhkumar
 
 Todo: Make this beautiful
