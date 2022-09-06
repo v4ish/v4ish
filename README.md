@@ -9,7 +9,7 @@ https://vichu.hashnode.dev
 
 https://vichu48.itch.io
 
-ttps://vichu.tumblr.com
+https://vichu.tumblr.com
 
 https://dev.to/vichu48
 
