@@ -13,6 +13,4 @@ https://vichu.tumblr.com
 
 https://dev.to/vichu48
 
-ko-fi.com/vaisakhkumar
-
-Todo: Make this beautiful
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/R6R4EVA7M)
