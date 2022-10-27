@@ -11,7 +11,7 @@ https://vaisakhk.hashnode.dev
 
 https://vaisakhkumar.itch.io
 
-https://vichu.tumblr.com
+https://www.tumblr.com/vaisakhk
 
 https://dev.to/vaisakhk
 
