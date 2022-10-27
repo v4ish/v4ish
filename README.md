@@ -7,9 +7,9 @@ https://www.linkedin.com/in/vaisakhmkumar
 
 https://leetcode.com/VaisakhKumar
 
-https://vichu.hashnode.dev
+https://vaisakhk.hashnode.dev
 
-https://vichu48.itch.io
+https://vaisakhkumar.itch.io
 
 https://vichu.tumblr.com
 
