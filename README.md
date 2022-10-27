@@ -7,13 +7,13 @@ https://www.linkedin.com/in/vichu48
 
 https://leetcode.com/VaisakhKumar
 
-https://vichu.hashnode.dev
+https://vaisakhk.hashnode.dev
 
-https://vichu48.itch.io
+https://vaisakhkumar.itch.io
 
 https://vichu.tumblr.com
 
-https://dev.to/vichu48
+https://dev.to/vaisakhk
 
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/R6R4EVA7M)
