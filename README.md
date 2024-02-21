@@ -10,7 +10,9 @@ Hello Mr.code thief
 
 [Leetcode](https://leetcode.com/v4ish/)
 
-[hackerrank](https://www.hackerrank.com/profile/v4ish)
+[Hackerrank](https://www.hackerrank.com/profile/v4ish)
+
+[Hackerone](https://hackerone.com/v4ish)
 
 [Hashnode.dev](https://v4ish.hashnode.dev)
 
