@@ -8,13 +8,11 @@ Hello Mr.code thief
 
 [Linkedin](https://www.linkedin.com/in/vaisakhmkumar)
 
-[Leetcode](https://leetcode.com/VaisakhKumar)
+[Leetcode](https://leetcode.com/v4ish/)
 
-[Hashnode.dev](https://vaisakhk.hashnode.dev)
+[Hashnode.dev](https://v4ish.hashnode.dev)
 
-[Itch.io](https://vaisakhkumar.itch.io)
-
-[Tumblr](https://www.tumblr.com/vaisakhk)
+[Itch.io](https://v4ish.itch.io)
 
 [Dev.to](https://dev.to/vaisakhk)
 
