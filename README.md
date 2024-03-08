@@ -20,5 +20,6 @@ Hello Mr.code thief
 
 [Dev.to](https://dev.to/vaisakhk)
 
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31vzinahqvdnrjndyn4fkteehmxa)
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/R6R4EVA7M)
