@@ -15,11 +15,3 @@ Kurunnari moshtikeruth...
 - [Hackerrank](https://www.hackerrank.com/profile/v4ish)
 
 - [Hackerone](https://hackerone.com/v4ish)
-
-- [Hashnode.dev](https://v4ish.hashnode.dev)
-
-- [Itch.io](https://v4ish.itch.io)
-
-- [Dev.to](https://dev.to/vaisakhk)
-
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/R6R4EVA7M)
